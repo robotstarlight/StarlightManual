@@ -1,1 +1,1 @@
-Mnaula de robot stralight - Soyuz Bilingual School
+Manual de robot stralight - Soyuz Bilingual School
